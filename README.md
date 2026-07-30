@@ -8,7 +8,7 @@
 
 <img width="20" height="20" alt="1000026468" src="https://github.com/user-attachments/assets/204042e7-0aa7-4ec1-a690-300e30593b10" />
 
-[𝘗𝘵'𝘴 𝘔𝘢𝘧𝘶𝘺𝘶 𝘢𝘴𝘢𝘩𝘪𝘯𝘢]( https://github.com/pt-hall-of-media)  ❄️  [𝘗𝘵'𝘴 𝘕𝘪𝘪𝘨𝘰](https://github.com/pt-hall-of-media)  ❄️  [𝘌𝘯 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 ]( https://en.pronouns.page/@DEADINS0MNIA)  ❄️  [Ata book ]( https://deadins0mnia.atabook.org)
+[𝘗𝘵'𝘴 𝘔𝘢𝘧𝘶𝘺𝘶 𝘢𝘴𝘢𝘩𝘪𝘯𝘢]( https://github.com/pt-hall-of-media)  ❄️  [𝘗𝘵'𝘴 𝘕𝘪𝘨𝘩𝘵𝘤𝘰𝘳𝘥](https://github.com/pt-hall-of-media)  ❄️  [𝘌𝘯 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 ]( https://en.pronouns.page/@DEADINS0MNIA)  ❄️  [𝘈𝘵𝘢 𝘣𝘰𝘰𝘬 ]( https://deadins0mnia.atabook.org)
 
 ![1000026486](https://github.com/user-attachments/assets/f556641c-c0b4-4346-9134-0c7f1237c64c)
 ![1000026479](https://github.com/user-attachments/assets/bea245ba-99c2-406a-9998-70a9fe0b1774)
