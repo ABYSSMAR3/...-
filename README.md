@@ -12,5 +12,7 @@
 
 ![1000026486](https://github.com/user-attachments/assets/f556641c-c0b4-4346-9134-0c7f1237c64c)
 ![1000026479](https://github.com/user-attachments/assets/bea245ba-99c2-406a-9998-70a9fe0b1774)
+<img width="693" height="463" alt="Screenshot_2026-08-13_170609" src="https://github.com/user-attachments/assets/38f096da-b184-414c-9e12-508a95eb05f9" /> 𝘐𝘭𝘺 𝘪𝘥𝘪𝘰𝘵𝘴 08.13
+
 ![1000026534](https://github.com/user-attachments/assets/c1be96b0-092a-43a7-aa5c-b4286a1572f9)
   
